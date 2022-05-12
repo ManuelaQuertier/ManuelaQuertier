@@ -1,5 +1,5 @@
 ### Hi there 👋
 
-- 🌱 I’m currently start learning codes
+- 🌱 I’m currently learning codes, more and more
 
 
